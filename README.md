@@ -1,0 +1,1 @@
+# Oryantasyon-odevi
